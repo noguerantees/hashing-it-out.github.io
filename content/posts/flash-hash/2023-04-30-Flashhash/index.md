@@ -21,7 +21,7 @@ tags:
 {{<youtube aO3M_KAg7Yk>}}
 
 ## Description
-Executive Producer, Christian, attempts to keep Corey, Dee, and Jessie on topic and within two a minutes a piece on three timely topics. You're gonna love it!
+Executive Producer, Christian, attempts to keep Corey, Dee, and Jessie on topic and within two a minutes a piece on three timely topics.
 
 This episode includes:
 
